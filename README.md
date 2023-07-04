@@ -4,7 +4,7 @@
  
  ✧ This GitHub account is for PonyTown (Mainly to link my Carrd!)
 
- ✧ Speaking of my Carrd... You can find it HERE --> yeilowbucket.carrd.co
+ ✧ Speaking of my Carrd... You can find it HERE --> yeilowbucket.carrd.co OR you can look under my profile picture!
  
 <!---
 YeilowBucket/YeilowBucket is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
