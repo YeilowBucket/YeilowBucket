@@ -4,9 +4,9 @@
  
  ✧ This GitHub account is for PonyTown (Mainly to link my Carrd!)
 
- ✧ Speaking of my Carrd... You can find it HERE --> yeilowbucket.carrd.co OR you can look under my profile picture!
+ ✧ Speaking of my strawpage... You can find it HERE --> [https://arthurwalton.straw.page/](https://arthurwalton.straw.page/) OR you can look under my profile picture!
 
- ❗ IF YOU SEE ONE OF MY SKINS BUT THIS GITHUB ACCOUNT IS NOT ATTACHED, IT IS A COPIED SKIN.
+ ❗ IF YOU RECOGNISE ONE OF MY PONIES BUT THIS GITHUB ACCOUNT IS NOT ATTACHED, IT IS A COPIED PONY!
  
 <!---
 YeilowBucket/YeilowBucket is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
