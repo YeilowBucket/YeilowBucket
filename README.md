@@ -1,10 +1,10 @@
+![](https://github.com/YeilowBucket/_/blob/main/rainbowscrolldivider.gif)
+ 
  ✦ HELLO! ✦
 
  ✧ I'm YeilowBucket, but you can just call me Bucket! 
  
- ✧ This GitHub account is for PonyTown (Mainly to link my Strawpage!)
-
- ✧ Speaking of my Strawpage... You can find it HERE --> [https://arthurwalton.straw.page/](https://arthurwalton.straw.page/) OR you can look under my profile picture!
+ ✧ This GitHub account is for PonyTown (Mainly to link my Strawpage! You can find it under my PFP!)
 
  ❗ I have this GitHub attached to all of my PT characters. If it isn't there, it isn't me!  ⚆_⚆
  
