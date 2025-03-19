@@ -4,7 +4,7 @@
 
  ✧ I'm YeilowBucket, but you can just call me Bucket! 
 
- ✧ This GitHub account is for PonyTown (Mainly to link my Strawpage! You can find it under my PFP!)
+ ✧ This GitHub account is pretty much just for linking my Strawpage!
 
 ❗ I have this GitHub attached to all of my PT characters. If it isn't there, it isn't me!  ⚆_⚆
 
