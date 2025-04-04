@@ -1,10 +1,10 @@
 ![](https://github.com/YeilowBucket/_/blob/main/rainbowscrolldivider.gif)
  
-# ![](https://github.com/YeilowBucket/_/blob/main/LRqihy7.gif) HELLO THERE! (≧∇≦)ﾉ‎ ‎ ‎ ‎  ⭒ [![Unique Visits Badge](https://badges.pufler.dev/visits/{yeilowbucket}/{repo})](https://badges.pufler.dev) ⭒ 
+# ![](https://github.com/YeilowBucket/_/blob/main/LRqihy7.gif) HELLO THERE! (≧∇≦)ﾉ‎ ‎ ‎ ‎  ⭒ [![Visits Badge](https://badges.pufler.dev/visits/{yeilowbucket}/{repo})](https://badges.pufler.dev) ⭒ 
 
  ✧ I'm YeilowBucket, but you can just call me Bucket! 
 
- ✧ This GitHub account is pretty much just for linking my Strawpage!
+ ✧ This GitHub account is pretty much just for linking my Strawpage & AtaBook!
 
 ❗ I have this GitHub attached to all of my PT characters. If it isn't there, it isn't me!  ⚆_⚆
 
