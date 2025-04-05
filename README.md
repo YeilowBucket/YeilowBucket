@@ -11,9 +11,6 @@
  ‎ ‎ ‎ ‎
  ‎ ‎ ‎ ‎
 
-
-` Strawpage, Atabook, ANYTHING! Leave your mark here!!! `  ‎ ‎ ‎ ‎     ![](https://github.com/YeilowBucket/_/blob/main/sxpn4n.gif)
-
  ‎ ‎
  ‎ 
    ‎  ‎ ‎   ‎‎
