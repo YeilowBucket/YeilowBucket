@@ -4,7 +4,7 @@
 
  ✧ I'm YeilowBucket, but you can just call me Bucket! 
 
- ✧ This GitHub account is pretty much just for linking my Strawpage & AtaBook!
+ ✧ This GitHub account is pretty much just for linking my [Strawpage](https://arthurwalton.straw.page/) & [AtaBook](https://yeilowbucket.atabook.org/)!
 
 ❗ I have this GitHub attached to all of my PT characters. If it isn't there, it isn't me!  ⚆_⚆
 
