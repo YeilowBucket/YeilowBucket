@@ -18,6 +18,10 @@
 ![image](https://github.com/user-attachments/assets/8581ee00-73b7-49e2-a1f3-06986a9f2b5d) ![image](https://github.com/user-attachments/assets/9df0de11-1707-4331-9439-57a9dd355da4)
 <sub>i made these myself... hehe</sub>
 
+
+
+![image](https://github.com/YeilowBucket/_/blob/main/KILL.png) <sub><-No but seriously, do NOT interact w/ me. You guys r fucking weird lmaoooo no exceptions<sub>
+
  
 <!---
 YeilowBucket/YeilowBucket is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
