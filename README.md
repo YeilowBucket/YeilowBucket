@@ -20,7 +20,7 @@
 
 
 
-![image](https://github.com/YeilowBucket/_/blob/main/KILL.png) <sub><-No but seriously, do NOT interact w/ me. You guys r fucking weird lmaoooo no exceptions<sub>
+![image](https://github.com/YeilowBucket/_/blob/main/KILL.png) <sub><-No but seriously, ""proshippers"" do NOT interact w/ me. You guys r fucking weird lmaoooo no exceptions<sub>
 
  
 <!---
