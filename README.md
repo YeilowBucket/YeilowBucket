@@ -19,10 +19,6 @@
 <sub>i made these myself... hehe</sub>
 
 
-
-![image](https://github.com/YeilowBucket/_/blob/main/KILL.png) <sub><-No but seriously, ""proshippers"" do NOT interact w/ me. You guys r fucking weird lmaoooo no exceptions<sub>
-
- 
 <!---
 YeilowBucket/YeilowBucket is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
