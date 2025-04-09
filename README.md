@@ -1,6 +1,6 @@
 ![](https://github.com/YeilowBucket/_/blob/main/rainbowscrolldivider.gif)
  
-# ![](https://github.com/YeilowBucket/_/blob/main/LRqihy7.gif) HELLO THERE! (≧∇≦)ﾉ‎ ‎ ‎ ‎  ⭒ [![Visits Badge](https://badges.pufler.dev/visits/{yeilowbucket}/{repo})](https://github.com/YeilowBucket) ⭒ 
+# ![](https://github.com/YeilowBucket/_/blob/main/LRqihy7.gif) HELLO THERE! (≧∇≦)ﾉ‎ ‎ ‎ ‎  ⭒ ![Visits Badge](https://badges.pufler.dev/visits/{yeilowbucket}/{repo}) ⭒ 
 
  ✧ I'm YeilowBucket, but you can just call me Bucket! 
 
