@@ -15,7 +15,7 @@
  ‎ 
    ‎  ‎ ‎   ‎‎
 
-![image](https://github.com/user-attachments/assets/8581ee00-73b7-49e2-a1f3-06986a9f2b5d) ![image](https://github.com/user-attachments/assets/9df0de11-1707-4331-9439-57a9dd355da4)
+![image](https://github.com/user-attachments/assets/8581ee00-73b7-49e2-a1f3-06986a9f2b5d) ![image](https://github.com/user-attachments/assets/9df0de11-1707-4331-9439-57a9dd355da4) ![image](https://github.com/YeilowBucket/_/blob/main/image.webp)
 <sub>i made these myself... hehe</sub>
 
 
