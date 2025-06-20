@@ -1,5 +1,4 @@
-![](https://github.com/YeilowBucket/_/blob/main/image%20(1).png)
- 
+
 # ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀  ༚༅༚˳  𝗁𝖾𝗅𝗅𝗈!‎ ˳༚༅༚ ‎ ‎ ‎  
 
 <sup>✎</sup> ![Visits Badge](https://badges.pufler.dev/visits/{yeilowbucket}/{repo})
